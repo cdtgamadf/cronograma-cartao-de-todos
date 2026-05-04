@@ -4,89 +4,70 @@
 ---
 
 ## 📅 Segunda-feira: Vídeo Clínica 🩺
-**Foco:** Estrutura & Confiança
+**Foco:** Estrutura & Confiança (Gama)
 
 ### 🎬 Ações
-*   Estrutura da clínica parceira
-*   Atendimento disponível
-*   Valores acessíveis
-*   Recepção/Profissional
+*   Vídeo na **Clínica do Gama**.
+*   Verificar com a equipe local qual tema eles preferem para o vídeo.
+*   Mostrar estrutura e atendimento.
 
-> **Objetivo:** Gerar confiança e credibilidade.
+> **Observação:** Na próxima semana, o vídeo será realizado na clínica de **Santa Maria**.
 
-**📱 Stories do Dia:** Arte com benefício do CDT (ex: consultas com desconto).
+**📱 Stories do Dia:** Bastidores da gravação na clínica do Gama.
 
 ---
 
-## 📅 Terça-feira: Vídeo CDT 💳
-**Foco:** Educação & Conversão
+## 📅 Terça-feira: Parceiros Nacionais 💳
+**Foco:** Cashback & Economia
 
 ### 🎬 Ações
-*   Criativo CDT
-*   Benefícios principais
-*   Exames e Farmácia
-*   CTA WhatsApp
+*   Vídeo sobre **Cashback**.
+*   Destaque para os principais parceiros nacionais: **Drogasil** e **Ultragás**.
+*   Como economizar no dia a dia com o Cartão de Todos.
 
-> **Objetivo:** Educar e converter novos clientes.
-
-**📱 Stories do Dia:** Arte com benefício do CDT (ex: desconto em farmácias).
+**📱 Stories do Dia:** Enquete: "Qual desses parceiros você mais utiliza?".
 
 ---
 
 ## 📅 Quarta-feira: Vídeo Refuturiza 🎓
-**Foco:** Valor Agregado
+**Foco:** Educação & Futuro
 
 ### 🎬 Ações
-*   Plataforma de cursos
-*   Como acessar
-*   Cursos disponíveis
-*   Benefício incluso
+*   Vídeo **Refu** (Cursos e Qualificação).
+*   Benefícios da plataforma para os filiados.
 
-> **Objetivo:** Agregar valor ao cartão (Educação).
-
-**📱 Stories do Dia:** Arte com benefício do CDT (ex: cursos gratuitos).
+**📱 Stories do Dia:** Dica de curso rápido disponível na plataforma.
 
 ---
 
-## 📅 Quinta-feira: Promoção Nacional 🔥
-**Foco:** Urgência & Venda
+## 📅 Quinta-feira: Sabadão de TODOS 🏠
+**Foco:** Sorteios & Prêmios
 
 ### 🎬 Ações
-*   Campanha nacional
-*   Prazo e urgência
-*   Condição especial
-*   CTA direto contato
+*   ⚠️ **Atenção:** NÃO TEM CAMPANHA NACIONAL ESTA SEMANA.
+*   Produzir material sobre o sorteio de **1 casa por semana**.
+*   Informações sobre o programa Sabadão de Todos.
 
-⚠️ **Observação:** Esta semana será postado todos os dias.
-
-**📱 Stories do Dia:** Arte reforçando a promoção ativa.
+**📱 Stories do Dia:** "Já imaginou ganhar uma casa? Veja como participar!".
 
 ---
 
-## 📅 Sexta-feira: Parceiro Local 📱
+## 📅 Sexta-feira: Parceiro Local (Novo) 📱
 **Foco:** Uso na Prática
 
 ### 🎬 Ações
-*   Gravar em parceiro local
-*   Compra pelo App
-*   Desconto ou cashback
-*   Parceiro ativo no app
+*   Vídeo novo em parceiro local.
+*   Demonstração real de uso e descontos.
 
-> **Objetivo:** Provar o uso real do cartão.
-
-**📱 Stories do Dia:** Arte com benefício do app do CDT.
+**📱 Stories do Dia:** Spoiler do parceiro diferente que teremos amanhã.
 
 ---
 
-## 📅 Sábado: Ação Parceiro 🤝
+## 📅 Sábado: Ação Parceiro (Diferente) 🤝
 **Foco:** Rede Local
 
 ### 🎬 Ações
-*   Vídeo externo parceiro
-*   Assessor de parcerias
-*   Mostrar estabelecimento
-*   Vantagem para CDT
+*   Vídeo novo com parceiro **diferente** do de sexta-feira.
+*   Fortalecimento da rede de parceiros locais.
 
-> **Objetivo:** Fortalecer a rede de parceiros local.
-
-**📱 Stories do Dia:** Arte com benefício do CDT ou parceiros.
+**📱 Stories do Dia:** Cobertura da ação presencial no parceiro.
