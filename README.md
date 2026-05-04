@@ -13,6 +13,8 @@
 
 > **Observação:** Na próxima semana, o vídeo será realizado na clínica de **Santa Maria**.
 
+> 📌 **TAREFA DIÁRIA FIXA:** Divulgação da unidade (Criativo para atrair e divulgar nova localização).
+
 **📱 Stories do Dia:** Bastidores da gravação na clínica do Gama.
 
 ---
@@ -25,6 +27,8 @@
 *   Destaque para os principais parceiros nacionais: **Drogasil** e **Ultragás**.
 *   Como economizar no dia a dia com o Cartão de Todos.
 
+> 📌 **TAREFA DIÁRIA FIXA:** Divulgação da unidade (Criativo para atrair e divulgar nova localização).
+
 **📱 Stories do Dia:** Enquete: "Qual desses parceiros você mais utiliza?".
 
 ---
@@ -35,6 +39,8 @@
 ### 🎬 Ações
 *   Vídeo **Refu** (Cursos e Qualificação).
 *   Benefícios da plataforma para os filiados.
+
+> 📌 **TAREFA DIÁRIA FIXA:** Divulgação da unidade (Criativo para atrair e divulgar nova localização).
 
 **📱 Stories do Dia:** Dica de curso rápido disponível na plataforma.
 
@@ -48,6 +54,8 @@
 *   Produzir material sobre o sorteio de **1 casa por semana**.
 *   Informações sobre o programa Sabadão de Todos.
 
+> 📌 **TAREFA DIÁRIA FIXA:** Divulgação da unidade (Criativo para atrair e divulgar nova localização).
+
 **📱 Stories do Dia:** "Já imaginou ganhar uma casa? Veja como participar!".
 
 ---
@@ -59,6 +67,8 @@
 *   Vídeo novo em parceiro local.
 *   Demonstração real de uso e descontos.
 
+> 📌 **TAREFA DIÁRIA FIXA:** Divulgação da unidade (Criativo para atrair e divulgar nova localização).
+
 **📱 Stories do Dia:** Spoiler do parceiro diferente que teremos amanhã.
 
 ---
@@ -69,5 +79,7 @@
 ### 🎬 Ações
 *   Vídeo novo com parceiro **diferente** do de sexta-feira.
 *   Fortalecimento da rede de parceiros locais.
+
+> 📌 **TAREFA DIÁRIA FIXA:** Divulgação da unidade (Criativo para atrair e divulgar nova localização).
 
 **📱 Stories do Dia:** Cobertura da ação presencial no parceiro.
